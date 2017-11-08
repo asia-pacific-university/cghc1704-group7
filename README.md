@@ -1,1 +1,7 @@
 # cghc1704-group7
+
+Group Name (Not Yet Decided)
+
+1) SONG BO (TP036172)
+2) WONG JIING HUEI (TP041361)
+3) CHONG MENG HAO (TPXXXXXX)
